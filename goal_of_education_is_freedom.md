@@ -12,7 +12,7 @@ The goal of education is freedom. Freedom comes in multiple forms.
 
 If you get financial freedom, you get all the other freedoms. 
 
-Your kids can be financially independent at age 25, as long as you don’t over-index their education on getting into Harvard. 
+Your kids can be financially independent at age 25, and have freedom the rest of their lives to do what they want. All it takes it guiding their education paths skillfully. 
 
 If you’re still interested, read on! 
 
@@ -23,7 +23,7 @@ But some decisions are more important than others.
 
 There is one decision that changes the arc of a person’s life: how their mind is trained.  
 
-The capability of a person’s mind will influence everything else about their life – the people they are around, the career they land, the person they marry, the net worth they will have, the life they get to enjoy. 
+The capability of a person’s mind will influence everything else about their life – the types of people they're around, the career they land, the person they marry, the net worth they have, the life they get to enjoy. 
 
 If I can educate my kids well, I impact everything about their life. 
 
@@ -37,54 +37,54 @@ When I talk to my friends with kids, the topic of education comes up often.
 
 The common themes are: 
 1.	Parents are dissatisfied with their own education experience as kids.
-2.	Parents feel FOMO when other kids are doing XYZ extracurriculars. 
-3.	Parents want better for their kids 
+2.	Parents feel FOMO and stressed when other kids are doing XYZ extracurriculars. 
+3.	Parents are nervously eyeing the increasing college tuitions.
 
 The question to ask yourself is - what are your goals? 
 
-By default, most parents consider admissions into a prestigious university as proof of a good education. But college admissions is an increasingly intense rat race, and the activities that students do for the perfect college application diverges from the skills they actually need in the real world. 
+Most parents consider admissions into a prestigious university as proof of a good education. But college admissions is an increasingly intense rat race. The activities that students do for the perfect college application diverges from the skills they actually need in the real world. 
 
-It's particularly intense in the Bay Area of California, where kids push themselves through many hoops. High schoolers are the founders and presidents of non-profits. They’re doing science research at universities. They’re chasing letters of recommendation from university professors and researchers. Starting freshman year of high school, they go after awards, which gives them a better shot for the other extracurricular activities and programs they’re applying for… all to build up to a stellar college application. 
+For example, many kids in the Bay Area are the founders and presidents of non-profits. They’re doing science research at universities. They’re chasing letters of recommendation from university professors and researchers. They go after awards to pad their resumes, as stepping stones to the next elite extracurricular programs they’re applying for... all to build up a stellar college application. After they get into the right colleges, the rat race doesn't end there. Then it's time to shoot for the right jobs in Tech, Finance or Consulting - to keep building the resume. They have become the masters of signaling their capability, but lost in knowing what they actually want to do. 
 
-I think it’s insane to do so much work for the sole purpose of impressing a college admission committee. We’re wiring our kids’ brains to please someone else, instead of actually living a meaningful and authentic life. What happened to doing things that you’re actually interested in for yourself and for your life? 
+It’s insane and meaningless. We are wiring our kids’ brains dopamine cycles to please someone else, instead of actually living a meaningful and authentic life. What happened to doing things that you’re actually interested in for yourself and for your life? 
 
-And then when your kids get into college – then what? Are they any closer to knowing what they’re actually meant to do in life? 
+At what point, do your kids get to actually start living their lives?
 
 ### The goal is freedom
 This leads me to the thesis of this book: **the goal of education is to maximize the future freedom of your kids.**
 
-I arrived at this line of thinking, after working many long hours at my job. My job is extremely meaningful to me, and it pays well enough to support a family, but I don’t get much freedom. During COVID when everyone worked remotely, my cute little 3 year old daughter ran into my home office while I worked, grabbed my arm, and tried to yank me away from the computer. “Come on daddy, let’s go play!” 
+This comes from the lessons of working through my own career. My job is extremely meaningful to me, and it pays well enough to support my family, but I don’t get much freedom. During COVID when everyone worked remotely, my cute little 3 year old daughter ran daily into my home office while I worked, grabbed my arm, and tried to yank me away from the computer. “Come on daddy, let’s go play!” 
 
 I hated saying to her “sorry dear, I’d love to, but daddy has to work.” 
 
-This led to me to think broadly about what I wanted to pass onto my kids. I know I want to give my kids an inheritance, strong values and wisdom. Those things would make me a great dad. But if I can give my kids the gift of freedom, that would be the best gift of all.
+This led to me to think broadly about the definition of a great father and the inheritances I wanted to pass onto my kids. I know I want to give my kids my assets, strong values and wisdom. That would be enough to make me a pretty good dad. But the best thing I can pass to my kids is the gift of freedom. 
 
-You are completely helpless with zero freedom the first day you were born. You gained more freedom as your grew up. But the ceiling to your freedom is how you make money. 
+Your kids are completely helpless with zero freedom the first day they were born. As they get older, their freedom will grow. But the ceiling of their freedom will who their employer is.
 
 There are two groups of people. One group of people misses their son’s Little League game to work late hours or gets fired for having the wrong political views. The second group of people do what they want, when they want, and say what they want, without putting their finances at risk. 
 
-Where do people go wrong and end up in group 1 instead of group 2? 
+Where do people go wrong and end up in Group 1 instead of Group 2? 
 
-I want my kids to have the best future. A good future does not include someone else in control of my kids’ schedule and wallet. I don’t want my kids to need to be groomed to please others – whether college admission committees or future employers. 
+I want my kids to be in Group 2. A good future does not include someone else in control of my kids’ schedule and wallet. My kids do not need to be groomed to please others – whether college admission committees or future employers. Nobody bosses my kids around. Except me and mom.
 
-Nobody bosses my kids around. Except me and mom of course.
+Concretely - what does giving freedom to your kids look like?
 
 There are many layers to freedom.
-* Financial freedom – my kids are not worried about money or losing their jobs 
-* Intellectual freedom – my kids can think and speak freely, without fear of losing their livelihood
-* Creative freedom – my kids can work on projects they find fulfilling, instead of being told what to do
-* Time freedom – my kids control their schedule 24 hours a day
-* Physical freedom – my kids can travel and be where they want to be
+* **Financial freedom:** my kids are not worried about money or losing their jobs 
+* **Intellectual freedom:** my kids can think and speak freely, without fear of losing their livelihood
+* **Creative freedom:** my kids can work on projects they find fulfilling, instead of being told what to do
+* **Time freedom:** my kids control their schedule 24 hours a day
+* **Physical freedom:** my kids can travel and be where they want to be
 
-Someone who works a regular 9-5 job with a boss, has very little of the freedoms listed above. The boss determines their schedule, what they work on, and where they have to be. 
+Someone who works a regular 9-5 job has very little of the freedoms listed above. Their boss determines their schedule, what they work on, and where they have to be. 
 
 Someone who owns a reasonably successful business, has more freedom.
 
 And someone like Warren Buffet has maximized his freedom. 
 
-The surest way to ensure you have intellectual, creative, time and physical freedom – without living like a monk, is to have financial freedom. 
+The surest way to ensure your kids have intellectual, creative, time and physical freedom – without living like a monk, is to have financial freedom. 
 
-So if you want your kids to have general freedom, educate them to have financial freedom. 
+So if you want your kids to have general freedom, educate them towards financial freedom. 
 
 ### Historical support for education as the path to freedom
 It’s not a new idea that education is the path to freedom. 
@@ -108,26 +108,24 @@ Black-owned businesses gave them ultimate freedom.
 ### What is your kid’s BATNA?
 When you study negotiations, one of the first concepts you learn is the BATNA – Best Alternative To Negotiated Agreement. The BATNA describes the alternative options you have, besides taking the deal in front of you. 
 
-If you have a strong BATNA - you have many strong attractive alternative options, then you are in a strong position and have more power to say no. If you don’t have any alternative options, you are in a poor negotiating position and you probably have to say yes. 
+If you have a strong BATNA, you have many strong alternative choices and you have more power to say no to a bad deal. But if you don’t have any alternative options, you are in a poor negotiating position and you have to say yes to a lousy deal. 
 
-Our kids are born into this world with a poor negotiating position. 
-
-The core argument of this book: the fundamental job of parents is to help their kids develop strong BATNAs in life. 
+The big idea I want to impress on you is that your fundamental job as a parent is to help your kids develop strong BATNAs in life. More options equals more freedom.
 
 This applies to finding a spouse, a career, a house, etc. 
 
 This also applies in the education of your child.
 
 ### Financial Independence is Plan A, College is Plan B
-For a lot of parents, getting their kids into a good college is Plan A. 
+The Plan A for many parents is to get their kids into a good college. It will look good on a resume 
 
-If that’s you, I want you to consider an alternate path.
+If that’s you, I want you to consider a nuanced, alternate path.
 
-After your kids have gotten into a good college and attended grad school, and got the career of their dreams, what do they want next? They will have worked for someone else for 10 years, and the excitement of the grind will have worn down, and they will want financial freedom. 
+After your kids have gotten into a good college and attended grad school, and got the career of their dreams, what do they want next? They will want financial freedom.
 
 So why not make financial freedom Plan A, and make college plan B? 
 
-The effectiveness of an education can be measured by how much it increases the wages your kid can command. Your goal as a parent is to educate your kids so that the value of their time increases significantly. You can measure how well you’re doing, by tracking the opportunity cost of your kid’s time. How much is someone willing to pay for your kids’ time? $15/hour at McDonalds? Or $100/hour? Or $250/hour? Naval Ravikant, an influential entrepreneur and investor, was early in his career when he aimed to improve his skills so much that his time was worth $1000/hour. 
+The effectiveness of an education can be measured by how much it increases the wages your kid can command. Your goal as a parent is to educate your kids so that the value of their time increases significantly. You can measure how well you’re doing, by tracking the opportunity cost of your kid’s time. How much is someone willing to pay for your kids’ time? $15/hour at McDonalds? Or $100/hour? Or $250/hour? Naval Ravikant, an influential entrepreneur and investor, was early in his career when he aimed to have skills worth $1000/hour. 
 
 Most kids, when they turn 18, have very little choice in life. They can either go to college, trade school or the military. What you want for your kids is a fourth choice: a personal project with a lot of financial upside. College no longer becomes the default obvious choice, when your kids are well-educated, can charge an expensive rate, and have many interesting projects they can work on. 
 
@@ -147,7 +145,7 @@ Here’s an excerpt:
 
 > “There’s always those 2 a.m. panic attacks where you’re thinking, ‘How the hell am I ever going to pay this off?’ ” said 29-year-old Zack Morrison, of New Jersey, who earned a Master of Fine Arts in film from Columbia in 2018 and praised the quality of the program. His graduate school loan balance now stands at nearly $300,000, including accrued interest. He has been earning between $30,000 and $50,000 a year from work as a Hollywood assistant and such side gigs as commercial video production and photography.
 
-Now that he’s done graduated from the program, his professors and school are nowhere to be found. He is left holding the bag of his expensive education. Nobody wants their kids in this unfortunate situation.
+Now that he’s done graduated from the program, his professors and school are nowhere to be found. He alone is left holding the big bag of debt. Nobody wants their kids in this unfortunate situation.
 
 Anyone who feels strongly that everyone should go to college, should be personally and financially liable to ensure that the college has a positive financial ROI, without government bailouts. Otherwise, you’re talking nonsense for the average individual who doesn’t have six figures to throw around mindlessly.
 
@@ -167,9 +165,9 @@ The root principle is – go where the fish gather. Find the community that will
 
 Ultimately, college tuition is a negotiation between you and the college. The losers of the negotiation pay for tuition. Most kids need the college, more than the college needs them, so the kids pay tuition. But if your kid has an excellent plan A (i.e. financial freedom), and they don’t need to go to college, that makes them so much more attractive to the college. College needs your kid to increase the quality of the student population, so now the college pays tuition. 
 
-This is Plan A. Plan A is to develop the unique skills of your kids, such that they become uniquely great in a specific area, and can command enough compensation to be financially independent. 
+This is Plan A. Plan A is to develop the unique skills of your kids, such that they become uniquely great in a specific area, and can command great choices in life. 
 
-If Plan A fails... well, there is always college. But the beauty about working on Plan A, your kids have spent time developing exploring their unique interests and strengths, which makes them a more interesting and compelling college candidate. They will enter college with a stronger idea of what they do, or don’t, want to do. 
+They can pursue a project that will pay them well, in lieu of going to college. Or they can go to college, but on their terms, potentially at greatly reduced cost. The beauty about working on Plan A, your kids have spent time developing exploring their unique interests and strengths, which makes them a more interesting and compelling college candidate. They will enter college with a stronger idea of what they do, or don’t, want to do. 
 
 And if Plan A succeeds and your kids still want to go to college, well Plan A can pay for it. I was getting my MBA in business school when I met a fellow student who had already started a company and was making good money. While others were in business school with $200k of student debt, his business was paying for his tuition.
 
@@ -180,7 +178,7 @@ The more interesting thing is how they got there. They had a plan A.
 
 The Wright brothers didn’t go to college. One of them got into Yale, but decided not to go. 
 
-Instead, the brothers dabbled in small businesses and building things as kids. In their early 20s, they started a bike shop in their hometown of Dayton, Ohio. And the bike shop earned enough money to cover their expenses and support their family. Then they hired someone to run the shop and they lived off the profits of the shop. They achieved plan A, financial freedom.
+Instead, the brothers started a bike shop in their hometown of Dayton, Ohio. The bike shop was successful and earned enough money to support their family. Then they hired someone to run the shop and they lived off the profits of the shop. They had achieved financial freedom in their 20s. 
 
 Financial freedom unlocked many other freedoms for them: 
 * Time freedom
@@ -190,9 +188,7 @@ Financial freedom unlocked many other freedoms for them:
 
 With all the time on their hands to do whatever they want, they decided to focus their creative energy on human flight. This wasn’t exactly a popular thing to do. People in town mocked them. Very important people, like university professors and the New York Times, also publicly mocked them. (Not too different than today, it seems.)
 
-But why should they care what other people think? They were financially free. And financial freedom afforded them intellectual freedom to pursue what they wanted to pursue, and the Wright brothers reached out to people who were open-minded about human flight. They were part of a community of people who loved gliding and wanted to fly. They studied birds and papers on glider experiments.
-
-They used money from their bike shop to build glider prototypes and invented wind tunnels. They failed many times, but their financial freedom allowed them to keep experimenting. 
+But why should they care what other people think? They were financially free. And financial freedom afforded them intellectual freedom to pursue what they wanted to pursue and nobody could stop them. They reached out to people were similarly obsessed with building gliders and flying. They would bike out into the nature and watch birds fly all day. They would read studies on glider experiments written by rogue scientists and explorers. They used money from their bike shop to build glider prototypes and invented wind tunnels. They failed many times, but their financial freedom allowed them to keep experimenting. 
 
 They packed up their gliders and took a train from Ohio to Kitty Hawk, North Carolina, to experiment with airplanes on a windy desolate beach.
 
@@ -203,15 +199,15 @@ And it all started with first obtaining financial freedom in their early 20s.
 ### Rules of the Game
 As a parent, you want to teach your kids the real rules of life. 
 
-Depending on where, and when you are born, you get to play by different sets of rules. 
+Depending on where, and when your kids are born, they get to play by different sets of rules. 
 
-I firmly believe that if you were born in America, you won the lottery. Because we have the best set of rules to help your kids become financially independent. 
+I firmly believe that if you were born in America, you won the lottery. America has some of the best set of rules to help your kids become financially independent. 
 
 **Rule #1: There are many paths to financial success**
 
 In America, you are surrounded by great universities. You can study hard in school, go to a good college, and be successful in life. 
 
-In America, you also live in the world’s richest market. You can turn your love of rock music, skateboarding or poker into a multi-million-dollar empire. 
+In America, you also live in the world’s wealthiest market. You can turn your love of rock music, skateboarding or poker into a multi-million-dollar empire. 
 
 These rules don’t necessarily exist in other places. In China, you need to score well on the national standardized test called the gaokao, because the gaokao determines which university you went to, which jobs you got and what net worth you ended up with. If you are born in China as a poor test taker, you’re out of luck. 
 
@@ -229,7 +225,7 @@ If you work for a salary or hourly wage, you will never get financial independen
 
 In modern times, starting a business has never been easier. You can do it all online, without needing a rich uncle to invest in your idea. You can find an idea and just do it. 
 
-This was not available to kids in 1980. This is an important point – the game has changed since we were kids. We need to adapt our parenting to the game.
+This was not available to kids in 1980. This is an important point – the game has changed since we were kids. We need to adapt our thinking as the game changes.
 
 **Rule #5: You don’t have to build a large business**
 
@@ -237,15 +233,15 @@ You don’t need to your kids to be Mark Zuckerberg. Not everyone can be Mark Zu
 
 But the Wright brothers can start a small business that gives them financial independence, and so can your kids. 
 
-Your kids can start a small business that generates $200k/year, with the appropriate training and work ethic. And if your kid can generate $200k/year without going to college, why not do that first before considering going to college? Cash flow now is better than cash flow later.
+With the appropriate training and work ethic, your kids can start a small business that generates $200k/year. And if your kids can generate $200k/year without going to college, why not do that first before considering going to college? Cash flow now is better now than cash flow later.
 
 ### A roadmap to financial freedom
-So, let’s talk about how we get our kids to financial freedom. 
+So, let’s talk about how we get your kids to financial freedom. 
 
 1.	Your kid is uniquely predisposed towards something. There is something that feels like fun for your kid, that feels like hard work to everyone else. 
-2.	Your kids won’t immediately know what their unique skill is. Give your kid the space to find out. Don’t overload their schedule with activities. Encourage them to do things that interest them and are within the realm of their skill set, instead of doing things just for the sake of putting it on a college application. Give them access to books, ideas, movies, documentaries, tools of creativity, to figure out what they really love doing.
+2.	Your kids are not born knowing exactly what their unique skill is. They need space and time to find out. Don’t overload their schedule with activities. Encourage them to do things that interest them and are within the realm of their skill set, instead of doing things just for the sake of putting it on a college application. Give them access to books, ideas, movies, documentaries, tools of creativity, to figure out what they really love doing.
 3.	At around age 14, your kid should have an idea of several things that they really enjoy doing. Help them figure out which ones have the most financial potential, and pick one to invest the next 10 years to being great at that thing. 
-4.	When your kids graduate from high school, permit them a gap year to full-time pursue their thing. After one year of gap year, they have the choice of going to college alongside developing their unique skills, or fully dedicate themselves to honing their unique skills. I’m going to guess that after 4 years of consistent effort, they can already start earning money from their unique skills. 
+4.	When your kids graduate from high school, permit them a gap year to full-time pursue their thing. After one year of gap year, they have the choice of going to college, or fully dedicate themselves to honing their unique skills. I’m going to guess that after 4 years of consistent effort, they can already start earning money from their unique skills. 
 5.	At age 25, your kid has spent 10 years focused on compounding their unique skill, either part-time (i.e. they decided to go to college, but still hone this skill) or full-time. 10 years of consistent effort compounds significantly, and they are likely one of the best at the world at this one skill. 
 6.	Because they are now the best in the world at this one skill, they can command premium prices. They’ve moved beyond merely supporting themselves, to actually generating real wealth. 
 
@@ -253,19 +249,19 @@ An example of someone who did this was Mr. Beast, who started making Youtube vid
 
 The beauty of this strategy is that it’s very low-risk. Most parents are afraid of risk, and they see college as a low-risk way to guarantee their child’s future. But if your kids are investing into their own unique talents 3-5 years before college, it will open up many opportunities to them than what college can offer. 
 
-And if Plan A fails, Plan B college will always be there. Chances are, your kid will be a stronger candidate for college, and will be much more mature and ready to squeeze all they can out of college, and have a stronger idea of what they want to do post-college, because they had embarked down plan A. So even if Plan A failed, Plan A worked wonderfully to improve Plan B.
+And if Plan A fails, Plan B college will always be there. Chances are, your kid will be a stronger candidate for college, and will be much more mature and ready to squeeze all they can out of college, and have a stronger idea of what they want to do post-college, because they had embarked down Plan A. So even if Plan A failed, Plan A worked wonderfully to improve Plan B.
 
-And let’s say Plan A succeeds! That’s great! The beauty of Plan A is that it provides freedom. You are not stuck with Plan A for the rest of your life. But with the money it generates for you, you can pursue other muses and pick something new for the next several chapters of your life, without worrying about money. This would be unthinkable for most people. 
+And let’s say Plan A succeeds! That’s great! The beauty of Plan A is that it provides freedom. You are not stuck with Plan A for the rest of your life. The Wright brothers started with a bicycle shop, but they didn’t become bicycle tycoons. The bicycle shop gave them the freedom to start a new chapter. 
 
-The Wright brothers started with a bicycle shop, but they didn’t become bicycle tycoons. The bicycle shop gave them the freedom to start a new chapter. 
+Most people only live 1-2 chapters in their life. If your kids are financially free due to Plan A, they are free to pursue many muses and write many more chapters in their life. 
 
 ### Your Next Steps
 
-I haven’t gotten my kids to financial freedom yet, my oldest is only 5 years old. But even if I did, our kids will have different unique skill sets. I wrote this book in 2023, and in 2030, there will be many more ways to help your kids become financially independent. But the basic rules I outlined in the chapter Rules of the Game will be largely the same. 
+The point of this book is to outline the fundamental principles and strategies that won't change. The tactics of implementing the strategy - well that's up to your imagination and creativity. 
+
+I haven’t gotten my kids to financial freedom yet, my oldest is only 5 years old. But even if I did, our kids will have different unique skill sets. I wrote this book in 2023, and in 2030, there will be many more ways to help your kids become financially independent. 
 
 I hope I jarred your thinking enough, to help you imagine alternate possibilities for your kids. Maybe it would have altered the trajectory of your family’s life in an awesome way. But in terms of actually navigating your family through this, well, that’s going to be up to you.
-
-I’ve given you the strategy. The tactics are up to you, and your imagination and capabilities.
 
 I do have some follow-up thoughts. 
 1.	Your role as the parent is now coach and mom-ager. Think Kris Jenner, who figured out what her family was good at, and monetized successfully towards a multi-billion-dollar empire. Guess which college Kris Jenner went to? The nationally accredited school of hard knocks. 
