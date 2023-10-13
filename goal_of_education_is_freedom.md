@@ -110,7 +110,7 @@ When you study negotiations, one of the first concepts you learn is the BATNA â€
 
 If you have a strong BATNA, you have many strong alternative choices and you have more power to say no to a bad deal. But if you donâ€™t have any alternative options, you are in a poor negotiating position and you have to say yes to a lousy deal. 
 
-The big idea I want to impress on you is that your fundamental job as a parent is to help your kids develop strong BATNAs in life. More options equals more freedom.
+The big idea I want to impress on you is that your fundamental job as a parent is to equip your kids to develop strong BATNAs in life. More options equals more freedom.
 
 This applies to finding a spouse, a career, a house, etc. 
 
