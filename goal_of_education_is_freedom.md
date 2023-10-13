@@ -42,16 +42,16 @@ The common themes are:
 
 The question to ask yourself is - what are your goals? 
 
-By default, most parents consider admissions into a prestigious university as proof of a good education. But college admissions is becoming a more intense rat race, and the activities that students do to look good on a college admissions application diverges from the skills kids actually need in the real world. 
+By default, most parents consider admissions into a prestigious university as proof of a good education. But college admissions is an increasingly intense rat race, and the activities that students do for the perfect college application diverges from the skills they actually need in the real world. 
 
-In the Bay Area, kids jump through many hoops in the college admissions game. High schoolers are the founders and presidents of non-profits. They’re doing science research at universities. They’re chasing letters of recommendation from university professors and researchers. Starting freshman year of high school, they go after awards, which gives them a better shot for the other extracurricular activities and programs they’re applying for… all to build up to a stellar college application. 
+It's particularly intense in the Bay Area of California, where kids push themselves through many hoops. High schoolers are the founders and presidents of non-profits. They’re doing science research at universities. They’re chasing letters of recommendation from university professors and researchers. Starting freshman year of high school, they go after awards, which gives them a better shot for the other extracurricular activities and programs they’re applying for… all to build up to a stellar college application. 
 
 I think it’s insane to do so much work for the sole purpose of impressing a college admission committee. We’re wiring our kids’ brains to please someone else, instead of actually living a meaningful and authentic life. What happened to doing things that you’re actually interested in for yourself and for your life? 
 
 And then when your kids get into college – then what? Are they any closer to knowing what they’re actually meant to do in life? 
 
 ### The goal is freedom
-This leads me to the thesis of this book: the goal of education is to maximize the future freedom of your kids. 
+This leads me to the thesis of this book: **the goal of education is to maximize the future freedom of your kids.**
 
 I arrived at this line of thinking, after working many long hours at my job. My job is extremely meaningful to me, and it pays well enough to support a family, but I don’t get much freedom. During COVID when everyone worked remotely, my cute little 3 year old daughter ran into my home office while I worked, grabbed my arm, and tried to yank me away from the computer. “Come on daddy, let’s go play!” 
 
@@ -59,13 +59,13 @@ I hated saying to her “sorry dear, I’d love to, but daddy has to work.”
 
 This led to me to think broadly about what I wanted to pass onto my kids. I know I want to give my kids an inheritance, strong values and wisdom. Those things would make me a great dad. But if I can give my kids the gift of freedom, that would be the best gift of all.
 
-You are completely helpless with zero freedom the first day you were born. As you grew up, you gained more and more freedom, especially as you enter adulthood. But there is a ceiling to your freedom - your employer.
+You are completely helpless with zero freedom the first day you were born. You gained more freedom as your grew up. But the ceiling to your freedom is how you make money. 
 
-There are two groups of people. One group of people misses their son’s Little League game to work late hours, or gets fired for having the wrong political views. The second group of people do what they want, when they want, and say what they want, without their finances at risk. 
+There are two groups of people. One group of people misses their son’s Little League game to work late hours or gets fired for having the wrong political views. The second group of people do what they want, when they want, and say what they want, without putting their finances at risk. 
 
-Where do people go wrong, where they end up in group 1 instead of group 2?
+Where do people go wrong and end up in group 1 instead of group 2? 
 
-I want my kids to have the best future. A good future does not include someone else in control of my kids’ schedule and wallet. In short, I don’t want my kids to need to be groomed to please others – whether college admission committees or future employers. 
+I want my kids to have the best future. A good future does not include someone else in control of my kids’ schedule and wallet. I don’t want my kids to need to be groomed to please others – whether college admission committees or future employers. 
 
 Nobody bosses my kids around. Except me and mom of course.
 
@@ -127,13 +127,13 @@ After your kids have gotten into a good college and attended grad school, and go
 
 So why not make financial freedom Plan A, and make college plan B? 
 
-The effectiveness of an education can be measured by how much it increases the wages your kid can command. Your goal as a parent is to educate your kids so that the value of their time increases significantly. You can measure how well you’re doing, by tracking the opportunity cost of your kid’s time. How much is someone willing to pay for your kids’ time? $15/hour at McDonalds? Or $100/hour? Or $250/hour? Naval Ravikant, an influential entrepreneur and investor, was a young student when he aimed to improve his skills so much that his time was worth $1000/hour. 
+The effectiveness of an education can be measured by how much it increases the wages your kid can command. Your goal as a parent is to educate your kids so that the value of their time increases significantly. You can measure how well you’re doing, by tracking the opportunity cost of your kid’s time. How much is someone willing to pay for your kids’ time? $15/hour at McDonalds? Or $100/hour? Or $250/hour? Naval Ravikant, an influential entrepreneur and investor, was early in his career when he aimed to improve his skills so much that his time was worth $1000/hour. 
 
 Most kids, when they turn 18, have very little choice in life. They can either go to college, trade school or the military. What you want for your kids is a fourth choice: a personal project with a lot of financial upside. College no longer becomes the default obvious choice, when your kids are well-educated, can charge an expensive rate, and have many interesting projects they can work on. 
 
 Some famous entrepreneurs come to mind here, right? 
 
-A lot of people will object to the idea that we should score the effectiveness of college, or education writ large, by how much it increases your wages. These people tend to be educators.  
+People may object to the idea that we should score the effectiveness of college, or education writ large, by how much it increases your wages. 
 
 My rebuttal to that is four-fold. 
 * Should someone go into six figures of debt, and not care about the ROI of their degree? 
@@ -147,7 +147,9 @@ Here’s an excerpt:
 
 > “There’s always those 2 a.m. panic attacks where you’re thinking, ‘How the hell am I ever going to pay this off?’ ” said 29-year-old Zack Morrison, of New Jersey, who earned a Master of Fine Arts in film from Columbia in 2018 and praised the quality of the program. His graduate school loan balance now stands at nearly $300,000, including accrued interest. He has been earning between $30,000 and $50,000 a year from work as a Hollywood assistant and such side gigs as commercial video production and photography.
 
-Now that he’s done graduated from the program, his professors and school are nowhere to be found. He is left holding the bag of his expensive education. Anyone who feels strongly that everyone should go to college, should be personally and financially liable to ensure that the college has a positive financial ROI, without government bailouts. Otherwise, you’re talking nonsense for the average individual who doesn’t have six figures to throw around mindlessly.
+Now that he’s done graduated from the program, his professors and school are nowhere to be found. He is left holding the bag of his expensive education. Nobody wants their kids in this unfortunate situation.
+
+Anyone who feels strongly that everyone should go to college, should be personally and financially liable to ensure that the college has a positive financial ROI, without government bailouts. Otherwise, you’re talking nonsense for the average individual who doesn’t have six figures to throw around mindlessly.
 
 What is college good for then? It’s good for credentials and community. 
 
@@ -206,6 +208,7 @@ Depending on where, and when you are born, you get to play by different sets of 
 I firmly believe that if you were born in America, you won the lottery. Because we have the best set of rules to help your kids become financially independent. 
 
 **Rule #1: There are many paths to financial success**
+
 In America, you are surrounded by great universities. You can study hard in school, go to a good college, and be successful in life. 
 
 In America, you also live in the world’s richest market. You can turn your love of rock music, skateboarding or poker into a multi-million-dollar empire. 
@@ -213,19 +216,23 @@ In America, you also live in the world’s richest market. You can turn your lov
 These rules don’t necessarily exist in other places. In China, you need to score well on the national standardized test called the gaokao, because the gaokao determines which university you went to, which jobs you got and what net worth you ended up with. If you are born in China as a poor test taker, you’re out of luck. 
 
 **Rule #2: You are free to start, own and keep the business**
+
 In America, you can start a business pretty easily. It’s so much harder elsewhere. Europe requires binders and binders of forms and signatures are required. By the time a European company has finished all their paperwork, an American company has already sped ahead with multiple versions of their product and paying customers. 
 
 And in America, you get the keep the business and pass it onto your kids. The government can’t just take it away from you, like they do in other countries. 
 
 **Rule #3: You can be financially independent, as long as you own a business**
+
 If you work for a salary or hourly wage, you will never get financial independence. You only get financial independence if you get exposed to financial upside, which is by owning a business that generates healthy cash flow. You own a business by either owning it outright, or by owning shares of a business, like many tech workers do.
 
 **Rule #4: Building a business has never been easier**
+
 In modern times, starting a business has never been easier. You can do it all online, without needing a rich uncle to invest in your idea. You can find an idea and just do it. 
 
 This was not available to kids in 1980. This is an important point – the game has changed since we were kids. We need to adapt our parenting to the game.
 
 **Rule #5: You don’t have to build a large business**
+
 You don’t need to your kids to be Mark Zuckerberg. Not everyone can be Mark Zuckerberg. Not even the Wright brothers can be Mark Zuckerberg. 
 
 But the Wright brothers can start a small business that gives them financial independence, and so can your kids. 
@@ -274,4 +281,4 @@ That’s it. This was a short book for busy parents.
 
 I hoped I changed your thinking in some way. 
 
-Reach out to me on X (formerly known as Twitter ) @natetzu.
+Reach out to me on X (formerly known as Twitter ) at @natetzu.
