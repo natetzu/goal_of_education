@@ -103,7 +103,7 @@ For this reason, Booker T. Washington, who founded Tuskegee Institute, taught bl
 
 Booker T’s philosophy played out in today’s black entrepreneurs. In the 1990s, black musicians needed to get signed by white dominated record label companies. But as artists such as Dr. Dre, Jay-Z, Kanye West became successful, they formed their own record labels, and many other business ventures in tech, culture, fashion, etc., that increased their economic independence and propelled them into the world of high net worth. 
 
-Black-owned businesses gave them ultimate freedom.
+Black-owned businesses gave black people the ultimate freedom.
 
 ### What is your kid’s BATNA?
 When you study negotiations, one of the first concepts you learn is the BATNA – Best Alternative To Negotiated Agreement. The BATNA describes the alternative options you have, besides taking the deal in front of you. 
