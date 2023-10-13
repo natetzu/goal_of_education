@@ -123,7 +123,7 @@ If that’s you, I want you to consider a nuanced, alternate path.
 
 After your kids have gotten into a good college and attended grad school, and got the career of their dreams, what do they want next? They will want financial freedom.
 
-So why not make financial freedom Plan A, and make college plan B? 
+So why not make financial freedom Plan A, and make college Plan B? 
 
 The effectiveness of an education can be measured by how much it increases the wages your kid can command. Your goal as a parent is to educate your kids and significantly increase the value of their time. You can measure how well you’re doing, by tracking the opportunity cost of your kid’s time. How much is someone willing to pay for your kids’ time? $15/hour at McDonalds? Or $100/hour? Or $250/hour? Naval Ravikant, an influential entrepreneur and investor, was early in his career when he aimed to have skills worth $1000/hour. 
 
@@ -163,7 +163,7 @@ The root principle is – go where the fish gather. Find the community that will
 * If you want to be a great entrepreneur, go where the great entrepreneurs gather.
 * If you want to be a great artist, go where the great artists gather.
 
-Ultimately, college tuition is a negotiation between you and the college. The losers of the negotiation pay for tuition. Most kids need the college, more than the college needs them, so the kids pay tuition. Sometimes they even have to pay for a new university library. But if your kid has an excellent plan A (i.e. self-made financial freedom), and they don’t need to go to college, that makes them so much more attractive to the college. College needs people of your kid's caliber to increase the quality of the student population, so now the college pays tuition. 
+Ultimately, college tuition is a negotiation between you and the college. The losers of the negotiation pay for tuition. Most kids need the college, more than the college needs them, so the kids pay tuition. Sometimes they even have to pay for a new university library. But if your kid has an excellent Plan A (i.e. self-made financial freedom), and they don’t need to go to college, that makes them so much more attractive to the college. College needs people of your kid's caliber to increase the quality of the student population, so now the college pays tuition. 
 
 This is Plan A. Plan A is to develop the unique skills of your kids, such that they become uniquely great in a specific area, and can command great choices in life. 
 
@@ -174,7 +174,7 @@ And if Plan A succeeds and your kids still want to go to college, well Plan A ca
 ### Wright brothers
 The Wright brothers are famous for inventing the airplane. 
 
-The more interesting thing is how they got there. They had a plan A. 
+The more interesting thing is how they got there. They had a Plan A. 
 
 The Wright brothers didn’t go to college. One of them got into Yale, but decided not to go. 
 
