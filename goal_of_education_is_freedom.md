@@ -163,7 +163,7 @@ The root principle is – go where the fish gather. Find the community that will
 * If you want to be a great entrepreneur, go where the great entrepreneurs gather.
 * If you want to be a great artist, go where the great artists gather.
 
-Ultimately, college tuition is a negotiation between you and the college. The losers of the negotiation pay for tuition. Most kids need the college, more than the college needs them, so the kids pay tuition. But if your kid has an excellent plan A (i.e. financial freedom), and they don’t need to go to college, that makes them so much more attractive to the college. College needs your kid to increase the quality of the student population, so now the college pays tuition. 
+Ultimately, college tuition is a negotiation between you and the college. The losers of the negotiation pay for tuition. Most kids need the college, more than the college needs them, so the kids pay tuition. Sometimes they even have to pay for a new university library. But if your kid has an excellent plan A (i.e. financial freedom), and they don’t need to go to college, that makes them so much more attractive to the college. College needs your kid to increase the quality of the student population, so now the college pays tuition. 
 
 This is Plan A. Plan A is to develop the unique skills of your kids, such that they become uniquely great in a specific area, and can command great choices in life. 
 
