@@ -188,7 +188,7 @@ Financial freedom unlocked many other freedoms for them:
 
 With all the time on their hands to do whatever they want, they decided to focus their creative energy on human flight. This wasn’t exactly a popular thing to do. People in town mocked them. Very important people, like university professors and the New York Times, also publicly mocked them. (Not too different than today, it seems.)
 
-But why should they care what other people think? They were financially free. And financial freedom afforded them intellectual freedom to pursue what they wanted to pursue and nobody could stop them. They reached out to people were similarly obsessed with building gliders and flying. They would bike out into the nature and watch birds fly all day. They would read studies on glider experiments written by rogue scientists and explorers. They used money from their bike shop to build glider prototypes and invented wind tunnels. They failed many times, but their financial freedom allowed them to keep experimenting. 
+But why should they care what other people think? They were financially free. And financial freedom afforded them intellectual freedom to pursue what they wanted to pursue and nobody could stop them. They reached out to people were similarly obsessed with building gliders and flying. They biked out into the nature and watch birds fly all day. They read studies on glider experiments written by rogue scientists and explorers. They used money from their bike shop to build glider prototypes and invented wind tunnels. They failed many times, but their financial freedom allowed them to keep experimenting. 
 
 They packed up their gliders and took a train from Ohio to Kitty Hawk, North Carolina, to experiment with airplanes on a windy desolate beach.
 
